@@ -40,10 +40,12 @@ all of my socials are in heree!
     <p> iwc ;; interact with care/caution ( i dont rlly put it in my name unless im crying or draining the shi out of me, js a quick reminder that i vent like most of the time. js in the silence not to ppl tho ) </p>
     <p> dni/tt/td ;; do not int / touch trigger / touch discomfort // i would sometimes put ts in my name as a joke, so feel free to troll me lol </p>
     <p> Ltm ;; listening to music ( i may watching your pones/ponies or want to c+h youu.uu...... 👀👀👀 im scared to c+h eeerrrraeeeearnjsdab ) </p>
+    <p> wy ;; watching youtube shi 💩💩💩 </p>
     <p> tc ;; touch comfort </p>
     <p> c+h ;; cuddle and hide </p>
     <p> i love whenever someone cuddles me, so js c+h freely whenever you wanted, because thats okay with me!! (˵ •̀ ᴗ - ˵ ) </p>
     <p> if you ever think im away, dont hesitate to w2i mate  </p>
+    <p> idk if there are ppl get mad of this, but if i left while you were c+h me. I AM VERY SORRYY!!! :,( my wifi sometimes suck, so thats why i disconnected T-T </p>
     <p> please do not try to engage rp w me, even if you do i will js simply hide you for 15 mins. the reason im saying ts is because im not very good at rp at all. but I usually think you guys are very funny when rp'ing and i might try rp again one day </p>
     <p> you may see me roaming around the map, or js sitting at some spots that i mostly sat, I am usually offtab, but dw i often check every 6-7 minutes </p>
     <p> I love placing lanterns, and yes if you see a table full of lanterns at outside of the bakery seating spot, that was me. I usually do it whenever im bored and i hope this didnt offend you.. i js love lanternnss..s...ok... 🥺🥺🥺 </p>
@@ -88,7 +90,7 @@ all of my socials are in heree!
     <img width="300" height="300" alt="image" src="https://files.catbox.moe/oj9v06.gif" />
     <img width="300" height="300" alt="image" src="https://files.catbox.moe/8rtogb.gif" />
     <img width="300" height="300" alt="image" src="https://files.catbox.moe/dsnzaz.gif" />
-    <p> i love wikilius </p>
+    <p> hes so stupid i hate him./j </p>
   </div>
 </details>
 
@@ -104,7 +106,6 @@ all of my socials are in heree!
   <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/EBbK_ZUJTcQAAAAd/hop-on-g%26b-hop-on.gif" />
   <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/ZuVuTtp6-cEAAAAd/guts-and-blackpowder-g%26b.gif" />
   <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/2/6/2/3/12653262_6b7ff.gif" />
-  <p> wipppp.. </p>
   </div>
 </details>
 
@@ -123,22 +124,19 @@ all of my socials are in heree!
   <p> Dopfer x American ferryman </p>
   <p> Dracula x Headless horseman </p>
   <p> Headless Horseman x Jacob </p>
-  <p> Karl x Dopfer </p>
+  <p> Unnamed Prussian Officer / Karl x Dopfer </p>
   <p> Bomber x/+ Igniter ( is either friends or ship ) </p>
   <p> Zapper x/+ Cuirassier </p>
   <p> American ferryman x  Barry </p>
   <p> Enginner x Barry </p>
+  <p> American ferryman x Jacob </p>
+  <p> Berezina suppliers x 95th rifles sharpshooter </p>
+  <p> Teabiscuit ( Unnamed Prussian Officer / Karl x Jean ) </p>
+  <p> Hobo x Bubbles </p>
+  <p> oka lets just say that I ship everything in gnb, except corspe x alive person, Jean x Jacob ( I HC THEM AS FATHER AND SON!!! ), unnamed austrian soldier/trailer guy x Dopfer npc ( hc them as brothers.. ), npc x historical figure ( for ex;; Blucher x *insert any npc* ) ts includes Karl x Blucher too.  </p>
   <p>  </p>
   <p>  </p>
-  <p>  </p>
-  <p>  </p>
-  <p>  </p>
-  <p>  </p>
-  <p>  </p>
-  <p> wip  </p>
   <p> </p>
   </div>
 </details>
-
-wip
 
