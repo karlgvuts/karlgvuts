@@ -143,5 +143,9 @@ all of my socials are in heree!
   </div>
 </details>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315mlshbpx72m2hp67w6niqg3bnm&cover_image=true&theme=default&show_offline=false&background_color=050624&interchange=false&profanity=false&bar_color=3f5597&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+────────────── . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ──────────────
+
+(what i am listening to btw!!)
+
+![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315mlshbpx72m2hp67w6niqg3bnm&cover_image=true&theme=default&show_offline=false&background_color=050624&interchange=false&profanity=false&bar_color=3f5597&bar_color_cover=true)
 
