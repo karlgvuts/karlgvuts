@@ -4,7 +4,7 @@
   
 </div>
 
-<h3 align="center"
+<h1 align="center"
 
 ### ${\textsf{\color{#3e759b} Welcome!! (˶ᵔ ᵕ ᵔ˶) }}$
 
@@ -44,11 +44,13 @@ all of my socials are in heree!
     <p> c+h ;; cuddle and hide </p>
     <p> i love whenever someone cuddles me, so js c+h freely whenever you wanted, because thats okay with me!! (˵ •̀ ᴗ - ˵ ) </p>
     <p> if you ever think im away, dont hesitate to w2i mate  </p>
-    <p> please do not try to engage rp w me, even if you do i will js simply hide you for 15 mins. the reason im saying ts is because im not very good at rp at all. but i might try again one day </p>
+    <p> please do not try to engage rp w me, even if you do i will js simply hide you for 15 mins. the reason im saying ts is because im not very good at rp at all. but I usually think you guys are very funny when rp'ing and i might try rp again one day </p>
     <p> you may see me roaming around the map, or js sitting at some spots that i mostly sat, I am usually offtab, but dw i often check every 6-7 minutes </p>
     <p> I love placing lanterns, and yes if you see a table full of lanterns at outside of the bakery seating spot, that was me. I usually do it whenever im bored and i hope this didnt offend you.. i js love lanternnss..s...ok... 🥺🥺🥺 </p>
     <p> please aim to be nice whenever you want to have a conversation with me, if no then i wont be replying to your messages. I'm not very good at interacting since i have been a dry texter for years, and talking in an energetic way feels like im being forced../nm (ᵕ—ᴗ—) but im not rlly that mean, i can be very kind, joyful, and maybe cool i think.k.k.....ghulp. And if i accidentally said smth uncomfortable, please lmk because i dont rlly mean it. I js wanna fit in gng 😢😢😢😢 I'm also very slow to understand some stuff and I'll lyk whenever it went over my head (๑ᵔ⤙ᵔ๑) </p>
     <p> i am very active on ponytown, I'm online for around 2-15 hours. if i havent been on ponytown for a week nor a months, it means i have school/exams or on a huge hiatus.. Onlines on every weekend, holidays and maybe midnight, if i havent slept yet ofc </p>
+    <p> if i ever follow you on here, i js wanna be friends with youu.... (⸝⸝◜ᴗ◝⸝⸝) </p>
+    <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/s1NjhxEvtAwAAAAd/gutsandblackpowder-g%26b.gif" />
   </div>
 </details>
 
@@ -58,6 +60,7 @@ all of my socials are in heree!
     <p> homophobic </p>
     <p> under <11 ( unless youre mature enough.. ) </p>
     <p> anndddd idk. i block freely except the ones above </p>
+    <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/eRmsgA4zA_wAAAAC/barry-gb-guts-and-blackpowder.gif" />
   </div>
 </details>
 
@@ -101,21 +104,6 @@ all of my socials are in heree!
   <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/EBbK_ZUJTcQAAAAd/hop-on-g%26b-hop-on.gif" />
   <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/ZuVuTtp6-cEAAAAd/guts-and-blackpowder-g%26b.gif" />
   <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/2/6/2/3/12653262_6b7ff.gif" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
   <p> wipppp.. </p>
   </div>
 </details>
