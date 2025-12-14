@@ -10,9 +10,9 @@
 
 <h6 align="center"
 
-Wikilius/Jacob yume.... 👀👀
+Wikilius/Jacob/Igniter yume.... 👀👀
 
-(sometimes sharing and sometimes non-sharing)
+(sometimes sharing and sometimes non-sharing. yes, i yumeship myself w igniter please dont smite me 💔💔)
 
 <img width="1918" height="400" alt="image" src="https://files.catbox.moe/ipbxqh.gif" />
 
@@ -121,26 +121,34 @@ all of my socials are in heree!
 </details>
 
 <details>
-  <summary><ins>some gnb ships that i like</ins></summary>
+  <summary><ins>some gnb ships i like/love...</ins></summary>
   <div align="center"> 
   <img width="300" height="300" alt="image" src="https://media.tenor.com/U-w9yXzeVVYAAAAM/gnb-hottea.gif" />
   <img width="300" height="300" alt="image" src="https://files.catbox.moe/yqfb9u.gif" />
-  <img width="300" height="300" alt="image" src="https://files.catbox.moe/d84abq.gif" />
   <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/9/3/1/0/12380139_c3f9a.gif" />
   <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/6/1/4/3/12343416_2829f.gif" />
   <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/4/9/1/7/11997194_aa0e2.gif" />
   <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/5/6/3/0/12160365_67f39.gif" />
-  <img width="300" height="300" alt="image" src="https://files.catbox.moe/rum3ga.gif" />
-  <img width="300" height="300" alt="image" src="https://files.catbox.moe/54s52h.gif" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <img width="300" height="300" alt="image" src="" />
-  <p> wipppp.. </p>
+  <p> american ferryman x arnaud/scared french man ( i cant put some of the gifs i made, because its completely glitching :'( </p>
+  <p> Majorbite/The last compliment ( Dopfer x Dracula ) </p>
+  <p> Saltwater ( Barry x Jean ) </p>
+  <p> Dopfer x American ferryman </p>
+  <p> Dracula x Headless horseman </p>
+  <p> Headless Horseman x Jacob </p>
+  <p> Karl x Dopfer </p>
+  <p> Bomber x/+ Igniter ( is either friends or ship ) </p>
+  <p> Zapper x/+ Cuirassier </p>
+  <p> American ferryman x  Barry </p>
+  <p> Enginner x Barry </p>
+  <p>  </p>
+  <p>  </p>
+  <p>  </p>
+  <p>  </p>
+  <p>  </p>
+  <p>  </p>
+  <p>  </p>
+  <p> wip  </p>
+  <p> </p>
   </div>
 </details>
 
