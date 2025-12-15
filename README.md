@@ -143,6 +143,7 @@ all of my socials are in heree!
   <p> you hate those ships?? thats okay! I respect your opinion, I dont have my rights to harrass people js because of a ship. Unless you take it too far, "g&b shippers ruining the fandom [insert edit dipshit]" son 😭😭😭😭😭😭😭 ok buddy, look there’s nothing wrong with shipping at all, it’s almost in every fandom. A cruel and “badass” game doesn’t always have to have a “badass” or “edgy sigma edit” type of fandom💔 and you should totally stfu with your sexist ass twerking </p>
   <p> and quick note, i LIKE/LOVE the ship. NOT "gnb ships i shipped.." please read carefully before throwing your thoughts at me.. except Hottea, Wikilius x AmericanFerryman, Saltwater, LanternExplosion, Bloodybarrel, Teaparty, andddd idk i ships those people oka  </p>
   <p> hate shippers? thats alright!!! I accept that! </p>
+  <img width="300" height="400" alt="image" src="https://files.catbox.moe/cjarz0.png" />
   </div>
 </details>
 
