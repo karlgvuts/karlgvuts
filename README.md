@@ -12,9 +12,9 @@
 
 <h6 align="center"
 
-Wikilius/Jacob/Igniter yume.... 👀👀
+Wikilius yume.... 👀👀
 
-(sometimes sharing and sometimes non-sharing. yes, i yumeship myself w igniter please dont smite me 💔💔)
+(sometimes sharing and sometimes non-sharing.. )
 
 (I'm always sharing and there's a 25% chance that you might see me non-sharing w people!) 
 
