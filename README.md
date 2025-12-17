@@ -66,7 +66,7 @@ all of my socials are in heree!
     <p> please aim to be nice whenever you want to have a conversation with me, if no then i wont be replying to your messages. I'm not very good at interacting since i have been a dry texter for years, and talking in an energetic way feels like im being forced../nm (ᵕ—ᴗ—) but im not rlly that mean, i can be very kind, joyful, and maybe cool i think.k.k.....ghulp. And if i accidentally said smth uncomfortable, please lmk because i dont rlly mean it. I js wanna fit in gng 😢😢😢😢 I'm also very slow to understand some stuff and I'll lyk whenever it went over my head (๑ᵔ⤙ᵔ๑) </p>
     <p> i am very active on ponytown, I'm online for around 2-18 hours. (dont worry, i do take a shower btw) if i havent been on ponytown for a week nor a months, it means i have school/exams or on a huge hiatus.. Onlines on every weekend, holidays and maybe midnight, if i havent slept yet ofc </p>
     <p> if you ever find me cool or interesting.. you can always send me a friend request! :')  </p>
-    <p> anddd... if i ever follow you on here, i really want to be friends with youu.... (⸝⸝◜ᴗ◝⸝⸝) </p>
+    <p> anddd... if i ever follow you on here, i js really want to be friends with youu.... (⸝⸝◜ᴗ◝⸝⸝) </p>
     <p> ( [<ins> doesnt forget to sign my ata ! </ins>](https://karlgvuts.atabook.org/) ) </p>
     <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/s1NjhxEvtAwAAAAd/gutsandblackpowder-g%26b.gif" />
   </div>
