@@ -37,6 +37,8 @@ HOTTEA FAN 👀👀 ALERT ALERT 👀👀👀 ♨️☕ ( please dont attack me )
 
 <img width="300" height="100" alt="image" src="https://files.catbox.moe/s0hzqk.gif" />
 
+<p> reminder !! ;; im a freaky person, lmk if you dont want that behaviour around you </p>
+
 ────────────── ⊹ ࣪ ˖ ⊹ ࣪ ˖ ⊹ ࣪ ──────────────
 
 all of my socials are in heree!
