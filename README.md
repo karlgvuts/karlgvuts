@@ -79,6 +79,7 @@ all of my socials are in heree!
   <summary><ins>Dni</ins></summary>
   <div align="center"> 
     <p> homophobic </p>
+    <p> tr*mp supporters  </p>
     <p> under <11 ( unless youre mature enough.. ) </p>
     <p> anndddd idk. i block freely except the ones above </p>
     <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/eRmsgA4zA_wAAAAC/barry-gb-guts-and-blackpowder.gif" />
@@ -128,39 +129,7 @@ all of my socials are in heree!
   </div>
 </details>
 
-<details>
-  <summary><ins>some gnb ships i like/love...</ins></summary>
-  <div align="center"> 
-  <p> I am  a rareshipper and a multishipper person btw </p>
-  <img width="300" height="300" alt="image" src="https://media.tenor.com/U-w9yXzeVVYAAAAM/gnb-hottea.gif" />
-  <img width="300" height="300" alt="image" src="https://files.catbox.moe/yqfb9u.gif" />
-  <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/9/3/1/0/12380139_c3f9a.gif" />
-  <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/6/1/4/3/12343416_2829f.gif" />
-  <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/4/9/1/7/11997194_aa0e2.gif" />
-  <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/5/6/3/0/12160365_67f39.gif" />
-  <p> ────────────── . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ────────────── </p>
-  <p> american ferryman x arnaud/scared french man ( i cant put some of the gifs i made, because its completely glitching :'( </p>
-  <p> Majorbite/The last compliment ( Dopfer x Dracula ) </p>
-  <p> Karl x Engineer </p>
-  <p> Saltwater ( Barry x Jean ) </p>
-  <p> Dopfer x American ferryman </p>
-  <p> Dracula x Headless horseman </p>
-  <p> Headless Horseman x Jacob </p>
-  <p> Unnamed Prussian Officer / Karl x Dopfer </p>
-  <p> LanternExplosion aka Bomber x/+ Igniter ( is either friends or ship ) </p>
-  <p> Zapper x/+ Cuirassier </p>
-  <p> American ferryman x  Barry </p>
-  <p> Enginner x Barry </p>
-  <p> American ferryman x Jacob </p>
-  <p> Berezina suppliers x 95th rifles sharpshooter </p>
-  <p> Teabiscuit ( Unnamed Prussian Officer / Karl x Jean ) </p>
-  <p> Hobo x Bubbles </p>
-  <p> oka lets just say that I like any ships in gnb, except corspe x npc/character (unless i really like the ship, for ex;; Cuirassier x Officer class), unnamed austrian soldier/trailer guy x Dopfer ( hc them as brothers.. ), npc x historical figure ( for ex;; Blucher x *insert any npc* ) ts includes Karl x Blucher too.  </p>
-  <p> you hate those ships and shippers?? thats okay! I respect your opinion, I dont have my rights to harrass people js because of a ship nor a hater. Unless you take it too far, "g&b shippers ruining the fandom [insert edit dipshit]" son 😭😭😭😭😭😭😭 ok buddy, look there’s nothing wrong with shipping at all, it’s almost in every fandom. A cruel and “badass” game doesn’t always have to have a “badass” or “edgy sigma edit” type of fandom💔 and you should totally stfu with your sexist ass twerking </p>
-  <p> and do note that i LIKE/LOVE the ship. NOT "gnb ships i shipped.." please read carefully before throwing your thoughts at me.. except Hottea, Wikilius x AmericanFerryman, Saltwater, LanternExplosion, Bloodybarrel, Peanutbread, Teaparty, andddd idk i ships those people oka  </p>
   <img width="300" height="400" alt="image" src="https://files.catbox.moe/cjarz0.png" />
-  </div>
-</details>
 
 ────────────── . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ──────────────
 
