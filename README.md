@@ -18,7 +18,7 @@ Wikilius yume.... 👀👀
 
 (I'm always sharing and there's a 25% chance that you might see me non-sharing w people!) 
 
-<img width="1918" height="400" alt="image" src="" />
+<img width="1918" height="400" alt="image" src="https://files.catbox.moe/ipbxqh.gif" />
 
 <h5 align="center"
 
@@ -35,7 +35,7 @@ but that was when I ruled the world. "
 
 HOTTEA FAN 👀👀 ALERT ALERT 👀👀👀 ♨️☕ ( please dont attack me )
 
-<img width="300" height="100" alt="image" src="" />
+<img width="300" height="100" alt="image" src="https://files.catbox.moe/s0hzqk.gif" />
 
 <p> reminder !! ;; im a freaky person, lmk if you dont want that behaviour around you </p>
 
