@@ -4,6 +4,8 @@
 
   <img width="300" height="100" alt="image" src="https://files.catbox.moe/swd0ms.gif" />
   
+the same person who made the gnb fandom area btw 😂😂😂✌️✌️✌️✌️/silly
+  
 </div>
 
 <h1 align="center"
