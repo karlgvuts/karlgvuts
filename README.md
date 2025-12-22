@@ -56,7 +56,7 @@ all of my socials are in heree!
     <p> dni/tt/td ;; do not int / touch trigger / touch discomfort // i would sometimes put ts in my name as a joke, so feel free to troll me lol </p>
     <p> Ltm ;; listening to music ( i may be watching you or want to c+h youu.uu...... 👀👀👀 im scared to c+h eeerrrraeeeearnjsdab ) </p>
     <p> wy ;; watching youtube shi 💩💩💩 </p>
-    <p> sv ;; semi-verbal ( will say like a couple of words and js using emojis ) </p>
+    <p> sv ;; semi-verbal ( will say like a couple of words or js using emojis ) </p>
     <p> nv ;; non verbal ( i wont say anything at all ) </p>
     <p> tc ;; touch comfort </p>
     <p> c+h ;; cuddle and hide </p>
