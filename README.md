@@ -14,9 +14,7 @@
 
 Wikilius yume.... 👀👀
 
-(sometimes sharing and sometimes non-sharing.. )
-
-(I'm always sharing and there's a 25% chance that you might see me non-sharing w people!) 
+(selective sharing!)
 
 <img width="1918" height="400" alt="image" src="https://files.catbox.moe/ipbxqh.gif" />
 
