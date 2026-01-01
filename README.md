@@ -2,11 +2,9 @@
   
   ![](https://komarev.com/ghpvc/?username=karlgvuts&color=6e1c14&amp;label=view+count)
 
-  <img width="300" height="300" alt="image" src="https://files.catbox.moe/7w0sny.jpg" />
-  
- THANK YOU BSF FOR DRAWING A GENDERBEND OF MY OC AND HER YUMESHIP 👀👀
- 
- (censored some of the text because is my real age and name!!)
+  <img width="800" height="800" alt="image" src="https://files.catbox.moe/iu6ufz.png" />
+
+  happy new years!! meet some of my gnb ocs..ok..
   
 </div>
 
