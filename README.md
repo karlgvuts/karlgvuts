@@ -2,9 +2,9 @@
   
   ![](https://komarev.com/ghpvc/?username=karlgvuts&color=6e1c14&amp;label=view+count)
 
-  <img width="800" height="800" alt="image" src="https://files.catbox.moe/iu6ufz.png" />
+  <img width="400" height="200" alt="image" src="https://files.catbox.moe/4ho20h.gif" />
 
-  happy new years!! meet some of my gnb ocs..ok..
+  upcoming wikilius layout.ok..ok........ anyways look at this ugly twink. i hate him, hes the WORST gnb oc ever
   
 </div>
 
