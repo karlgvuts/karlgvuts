@@ -19,7 +19,7 @@
 
 <h3 align="center"
 
-### ${\textsf{\color{#73393A} Sugar - She Wants Revenge }}$
+### ${\textsf{\color{#73393A} ゲンチアナ - Lonepi }}$
 
 <div align="center">
 
@@ -112,7 +112,7 @@ I sometimes don't like communicating and will most likely have problems whenever
   <div align="center"> 
   <p> I basically listen to everything. EVEN funk and satire/random ass songs, for ex;; Labubu Funk, Whatsapp 2 official music, and etc.. If you caught me listening to these songs, js dont mind it 💔💔 I do this as a coping mechanism or just for fun, and by fun i mean like whenever I don't know what to listen to, so i just listen to these songs. Dont judge ok? 🫂🫂
 
-I listen to aggressive jumpstyle, breakcore, hard rock, electronic, hardcore, Vocaloid, Funk, OST, horror, vent songs, video game songs/music, classical music, and animation meme songs ALOT.. I like many artists, but my tops one are VladAL, Type O Negative, Owata-P, Phosgore, Kikuo, Imagine Dragons, Tryhardninja, JT music, Dagames, Skillet, Miss Construction, And One, She Wants Revenge, S3RL, and KMFDM !!  </p>
+I listen to aggressive jumpstyle, breakcore, hard rock, electronic, hardcore, Vocaloid, Funk, OST, horror, vent songs, video game songs/music, classical music, and animation meme songs ALOT.. I like many artists, but my tops one are VladAL, Type O Negative, Lonepi, Owata-P, Phosgore, Kikuo, Imagine Dragons, Tryhardninja, JT music, Dagames, Skillet, Miss Construction, And One, She Wants Revenge, S3RL, and KMFDM !!  </p>
 <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/c9TIAd-qhrEAAAAd/guts-and-blackpowder-gnb.gif" />
   </div>
 </details>
