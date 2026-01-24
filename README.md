@@ -56,6 +56,7 @@ short introduction yayayyayyy (i think)
   <div align="left">
     <p> w2i ;; whisper to interact ( i am a very shy person, so i suggest you to speak up first ) </p>
     <p> iwc ;; interact with care/caution </p>
+    <p> dni ;; Do not interact </p>
     <p> Ltm ;; listening to music </p>
     <p> fti ;; Free to interact </p>
     <p> sv ;; semi-verbal ( will say like a couple of words or js using emojis ) </p>
@@ -99,7 +100,9 @@ I LOVE making new friends. please dont be afraid to interact with me, because i 
 <details>
   <summary><ins>  <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/862a485700e5f83f5165041efb768189/92a3894316da2601-4f/s75x75_c1/c45c608e72effc6a4fb251e0cc13ae62389d8e06.gifv" /> Before You Interact !! </ins></summary>
   <div align="center"> 
-  <p> I am a very VERY dry person,  if you see me being talkative. That's not me/j. I am rarely semi-verbal if I have a bit of energy to talk and non-verbal if I don't have the energy to talk. Using slurs and cuss words towards me is fine as long as i dont get violated or smth. i sometimes gets too comfortable, then started being rlly interactive, oversharing some stuff, and also make alot of freaky jokes, please lmk if you dont want that kind of humor. I do alot of typos btw, and usually giggle at everything.. its just the way i interact with oomf LMFAO . I often make jokes like "die, go kys" but I don't really mean it, js please dont think that i actually mean it. I get stressed easily, although you can try make me happy if you want..
+  <p> I am a very VERY dry person,  if you see me being talkative. That's not me/j. I am rarely semi-verbal if I have a bit of energy to talk and non-verbal if I don't have the energy to talk. Using slurs and cuss words towards me is fine as long as i dont get violated or smth. i sometimes gets too comfortable, then started being rlly interactive, oversharing some stuff, and also make alot of freaky jokes, please lmk if you dont want that kind of humor. I do alot of typos btw, and usually giggle at everything.. its just the way i interact with oomf LMFAO . I would often say some random ass shit like " labubu / skibidi toilet / domer " and other corny/brainrot stuff.. Sorry if its too brainrotting, I js really dont know what to say 💔💔 I rarely make jokes like "die, go kys" but I don't really mean it, js please dont think that i actually mean it..
+
+  I get stressed easily nowadays, and vent quite alot on my pone names even tho nobody gives a shit about it. I usually put "sh" or other suicidal thoughts in my name as a cry for help. Especially on my sayori cos, I will also sometimes isolate myself from oomf or people whenever i dont feel like it, except i wont walk away if you're cuddling me at the moment since i will feel really bad. If you really hate that kind of person, just block me and continue with your happy life. Dont fuckass make a rant about this shit.
 
 I sometimes don't like communicating and will most likely have problems whenever I try to interact with someone. I also try to think about what to say, so just please be patient ok? People whose first language isn't English and who aren't very good at it, I respect you. Although I sometimes won't understand what you're saying because of the grammar and usually won't tell you by what you meant, cuz you might think im judging.. So I just stare at you directly… sorry :(( I'm the type who's really slow to understand some stuff, so I'll let you know if it went over my head!!! If you're that depressed, please reach out to someone or me. Nobody deserves to suffer in silence, take care of yourself and your own mental health person. ^_^ 
 
