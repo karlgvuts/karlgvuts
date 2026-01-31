@@ -71,10 +71,9 @@ short introduction yayayyayyy (i think)
     <p> i dont care if you're copying my ponies, as long as you credit me ok? </p>
     <p> i dont really mind roleplaying, just do note that im not good at roleplay.. </p>
     <p> I often hit people with a broom, thats how i communicate with people nowadays LOL/gen  </p>
-    <p> I love and accept joke insults towards my ugly pones! the worst I've gotten is my buoyant bee pone being called a huggy wuggy. OHMY GOD. </p>
+    <p> Joke insults are ok, I'm rlly cool with that dw </p>
     <p> you may see me roaming around the map, or js sitting at some areas that i mostly sat, I am usually offtab, but dw i often check every 4-12 minutes </p>
     <p> I love placing some random items, and yes if you see a table full of random items at outside bakery, that was me. I usually do it whenever im bored and i hope this didnt offend you.. </p>
-    <p> thank you whoever crown me, I'd really appreciate it.. ^^ </p>
     <p> i unfriend people who are offline over 250+ days </p>
     <p> if i put "asleep 💤" in my name, it's a sign that i have to get off real soon. Not actually asleep sadly, but sometimes i am asleep behind the screen 💔 </p>
     <p> i sometimes forgot that i have "nv" in my name, and if i ever communicate with you while having it, js dont mind it because im slow </p>
