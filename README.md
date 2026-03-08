@@ -14,7 +14,7 @@
 
 <h4 align="center"
 
-( [<ins> ata </ins>](https://karlgvuts.atabook.org/) - [<ins> strawpage </ins>](https://karlgvuts.straw.page) - [<ins> guns.lol </ins>](https://guns.lol/karlgvuts) - my other [<ins> socials</ins>](https://linktr.ee/karlgvuts) if ya want ^_^ )
+( [<ins> ata </ins>](https://karlgvuts.atabook.org/) - [<ins> strawpage </ins>](https://karlgvuts.straw.page) - [<ins> guns.lol </ins>](https://guns.lol/karlgvuts) - my other [<ins> socials</ins>](https://linktr.ee/karlgvuts) if ya want )
 
 
 <h3 align="center"
@@ -31,7 +31,7 @@
 
 <h3 align="center"
 
-### ${\textsf{\color{#73393A} wikilius yume here hello!! hi!!!! (˶°ヮ°˶) }}$
+### ${\textsf{\color{#73393A} wikilius yume here hello hi }}$
 
 <h4 align="center"
 
