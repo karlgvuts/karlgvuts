@@ -16,7 +16,7 @@
 
 ( [<ins> ata </ins>](https://karlgvuts.atabook.org/) - [<ins> strawpage </ins>](https://karlgvuts.straw.page) - [<ins> guns.lol </ins>](https://guns.lol/karlgvuts) - my other [<ins> socials</ins>](https://linktr.ee/karlgvuts) if ya want )
 
-PLEASE read BYI, ok. 
+PLEASE read BYI, if you wanna communicate with me bruh
 
 
 <h3 align="center"
@@ -89,7 +89,7 @@ short introduction
   <summary><ins>  <img width="20" height="20" alt="image" src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/brown/250" /> Short information </ins></summary>
   <div align="center"> 
   <p> 01/01 🍰
-  <p> I draw traditionally and digitally, i rarely post them on twitter.. and sometimes draw on people's strawpages if i have the motivation to do so. Multishipper and a rareshipper, I enjoy every ships in g&b, ESPECIALLY the rarepair ones. Excluding the problematic ones, this doesnt includes jean x jacob, i do NOT hc them as a father and son at all. I am a multiyume and very, VERY selective about sharing with Wikilius, since he is my main f/o after all. I only share with my moots, close friends, or people that I'd love to share with. While my other f/o's are hypersharing. I also tend to fictkin quite alot, mb... bread and tea enjoyer btw. I like bunnies and dogs. I speak around 3 languages. English, malay/indo, and a bit of russia. I really like Lithuania and France quite alot, they're my favourite. </p>
+  <p> I draw traditionally and digitally, i rarely post them on twitter.. and sometimes draw on people's strawpages if i have the motivation to do so. Multishipper and a rareshipper, I enjoy every ships in g&b, ESPECIALLY the rarepair ones. Excluding the problematic ones, this doesnt includes jean x jacob, i do NOT hc them as a father and son at all. I am a multiyume and very, VERY selective about sharing with Wikilius, since he is my main f/o after all. I only share with my moots, close friends, or people that I'd love to share with. While my other f/o's are hypersharing. I also tend to fictkin quite alot, mb... bread and tea enjoyer btw. I like bunnies and dogs. I speak around 3 languages. English, malay/indo, and a bit of russia. I really like Lithuania, France, Sweden, and Netherlands quite alot, they're my favourites. </p>
    <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/QNWwC3R_fCsAAAAd/guts-and-blackpowder-danish.gif" />
   </div>
 </details>
@@ -100,7 +100,7 @@ short introduction
   <p> I dont mind people interacting with me at all. its just that I dont really know how to communicate, I have been struggling to communicate with people since forever, even if you tryna to gossip with me. I like listening quite alot and also very dry, sorry. If we have the same humor or smth, there's a high chance that i might go on a talkative mode. I also tend to say the most brainrotting shit ever, for ex; labubu, cry for me, fart, and etc. I do ALOT of typos, to the point people dont even know what im saying lmfao. I am really freaky, if you are uncomfortable with that, please let me know, I dont like making people uncomfortable. I use alot of cuss words and also "kys" jokes, let me know if you're uncomfortable with that. I'm also fine with people swearing or slurs, as long as i dont get violated or offended. </p>
     <p> Just because im seem joyful or smth, it doesnt mean my personality is like that. I often comes out very mean, but i ensure you that im also nice too. I'm only rude if pissed off or smth. I'm a guyb who's very slow, but although, I sometimes let you know if it went over my head. I vent quite alot, but i dont like whenever people who comforts me. Unless they have my permission or ok with it, i do this because i feel guilty towards people that might have it worse than me. do NOT vent to me if you want good advice, although i often lost the will to comfort too lol. I also laugh at literally anything uh oh. I'm really chill with anything, and i dont often take jokes seriously, unless if its something weird like rape, sa, and pedo jokes. ( also, i often say "L BOZO", sorry if i lowk ragebaited you. ) </p>
 <p> I strictly dont have a dni list, so you are free to int with me. Just dont be an asshole ok? Fictionkin doubles are fti and Wikilius selfshippers iwc. </p>
-    <p> Fictkinning karl and yumeshipping wikilius is my coping mechanism, i ship karl/klaus x wikilius because of it. If you are oomf who lowk copied everything about me, please dni or iwec. You are clearly DISRESPECTING my boundaries and making me uncomfortable. Also get mature already, you are no cool if you do that kind of shit. You just wanna make someone's life worser.  </p>
+    <p> Fictkinning karl and yumeshipping with wikilius is my coping mechanism, i ship karl/klaus x wikilius because of it. If you are oomf who lowk copied everything about me, please dni or iwec. You are clearly DISRESPECTING my boundaries and making me uncomfortable. Also get mature already, you are no cool if you do that kind of shit. You just wanna make someone's life worser.  </p>
   <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/6XTcgSyBFPYAAAAd/centaura-corvus.gif" />
   </div>
 </details>
