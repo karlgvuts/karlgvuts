@@ -16,6 +16,8 @@
 
 ( [<ins> ata </ins>](https://karlgvuts.atabook.org/) - [<ins> strawpage </ins>](https://karlgvuts.straw.page) - [<ins> guns.lol </ins>](https://guns.lol/karlgvuts) - my other [<ins> socials</ins>](https://linktr.ee/karlgvuts) if ya want )
 
+PLEASE read BYI, ok. 
+
 
 <h3 align="center"
 
