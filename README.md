@@ -73,7 +73,6 @@ short introduction
     <p> I sometimes forgot to get out of the whisp interaction, dont mind that </p>
     <p> i dont care if you copied one of my ponies, as long as you credit me ok? </p>
     <p> i dont really mind roleplaying, just do note that im not good at roleplay. </p>
-    <p> I often hit people with a broom, thats how i communicate with people nowadays LOL/gen  </p>
     <p> Joke insults are ok, I'm rlly cool with that dw </p>
     <p> you may see me roaming around the map, or js sitting at some areas that i mostly sat, I am usually offtab, but dw i often check every 4-12 minutes </p>
     <p> I love placing some random items, and yes if you see a table full of random items at outside bakery, that was me. I usually do it whenever im bored and i hope this didnt offend you.. </p>
