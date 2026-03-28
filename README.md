@@ -41,7 +41,7 @@ read BYI plz
 
 <div align="center">
 
-<img align="center" width="500" height="250" alt="image" src="https://files.catbox.moe/ipbxqh.gif" />
+<img align="center" width="500" height="250" alt="image" src="https://files.catbox.moe/fc5map.gif" />
 
 <div align="center">
 
