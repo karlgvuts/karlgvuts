@@ -80,6 +80,7 @@ short introduction
     <p> i am very active on ponytown, I'm online for around 2-18 hours. (dont worry, i do take a shower btw) if i havent been on ponytown for a week nor a months, it means i have school/exams or on a huge hiatus.. Onlines on every weekened, holidays and maybe midnight, if i havent slept yet ofc... If you see me being online on weekdays, thats just me doing hw or drawing if my dad let me play the computer </p>
     <p> please ask first or interact with me first if you wanna be friends with me on pony town.. </p>
     <p> anddd... if i ever follow you on here, i just really want to be friends with you </p>
+    <p> Also im the person who made the G&B/Napoleonic era area, i like seeing another g&b or a napowars skin in the area :-) </p>
     <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/gf9ZlkdbtqUAAAAd/guts-and-blackpowder.gif" />
   </div>
 </details>
