@@ -97,7 +97,7 @@ short introduction
 <details>
   <summary><ins>  <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/862a485700e5f83f5165041efb768189/92a3894316da2601-4f/s75x75_c1/c45c608e72effc6a4fb251e0cc13ae62389d8e06.gifv" /> Before You Interact </ins></summary>
   <div align="center"> 
-  <p> I am really akward and does alot of sexual jokes. lmk if you're uncomfortable. I practically laugh at everything. if you text or reply to my responses, i will often not reply nor open the chat. I just generally dont know what to say! please dont ever conjecture that i am ignoring or dislike you on purpose :( im very slow whoops.. I'm an English major, i sometimes use ';' and '—' in my sentences, dont ever think im using Ai. But, im not typically in that mode all the time! i like being unserious and I am also cool with almost anything </p>
+  <p> I am really akward and make alot of sexual jokes. lmk if you're uncomfortable. I practically laugh at everything. if you text or reply to my responses, i will often not reply nor open the chat. I just generally dont know what to say! please dont ever conjecture that i am ignoring or dislike you on purpose :( im very slow whoops.. I'm an English major, i sometimes use ';' and '—' in my sentences, dont ever think im using Ai. But, im not typically in that mode all the time! i like being unserious and I am also cool with almost anything </p>
   <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/6XTcgSyBFPYAAAAd/centaura-corvus.gif" />
   </div>
 </details>
