@@ -97,7 +97,9 @@ short introduction
 <details>
   <summary><ins>  <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/862a485700e5f83f5165041efb768189/92a3894316da2601-4f/s75x75_c1/c45c608e72effc6a4fb251e0cc13ae62389d8e06.gifv" /> Before You Interact </ins></summary>
   <div align="center"> 
-  <p> I am really akward and make alot of sexual jokes. lmk if you're uncomfortable. I practically laugh at everything. if you text or reply to my responses, i will often not reply nor open the chat. I just generally dont know what to say! please dont ever conjecture that i am ignoring or dislike you on purpose :( im very slow whoops.. I'm an English major, i sometimes use ';' and '—' in my sentences, dont ever think im using Ai. But, im not typically in that mode all the time! i like being unserious and I am also cool with almost anything </p>
+  <p> I am really akward and make alot of sexual jokes. lmk if you're uncomfortable. I practically laugh at everything. if you text or reply to my messages, i will often not reply nor open the chat. I just generally dont know what to say! please dont ever conjecture that i am ignoring or dislike you on purpose :( im very slow whoops.. I'm an English major, i sometimes use ';' and '—' in my sentences, dont ever think im using Ai. But, im not typically in that mode all the time! i like being unserious, i do alot of typos, and I am also cool with almost anything </p>
+  <p> sometimes please use tonetags when talking to me, i am very unsure if youre talking srsly or jokingly </p>
+    <p> I strictly dont have a dni list at all, just dont be an asshole to me. besides that, fictionkin doubles are free to interact! and wikilius yumes iwc. Also wikilius yume and being a karl fictionkin at the same time please iwec or dniuid, i feel really uncomfortable because fictkinning karl and yumeshipping wikilius is my coping mechanism, i ship karl/klaus x wikilius because of it. </p>
   <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/6XTcgSyBFPYAAAAd/centaura-corvus.gif" />
   </div>
 </details>
@@ -118,8 +120,8 @@ short introduction
 <details>
   <summary><ins>  <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv" /> Interests </ins></summary>
   <div align="center"> 
-  <p> In order of favourite! + main interests  </p>
-  <p> Guts & Blackpowder / Lexington & Concord / Centaura / Hetalia / Countryhumans / Flood Escape 2 / Minecraft / Dead Ahead / Napoleonic wars / Blood Debt / Blood & Iron / Islands ( Roblox ) / flamingo albert (and his friends) / FNF ( impostor v4 and skyverse ) / Vocaloid </p> 
+  <p> In order of favourite + main interests  </p>
+  <p> Guts & Blackpowder / Lexington & Concord / Centaura / Adopt me / Countryhumans / Flood Escape 2 / Minecraft / Dead Ahead / Napoleonic wars / Blood Debt / Blood & Iron / Islands ( Roblox ) / flamingo albert (and his friends) / FNF ( impostor v4 and skyverse ) / Vocaloid / Hetalia </p> 
     <img width="300" height="300" alt="image" src="https://media.tenor.com/BW1oKIjC9qQAAAAM/barry-roblox.gif" />
   </div>
 </details>
@@ -127,9 +129,9 @@ short introduction
 <details>
   <summary><ins>  <img width="20" height="20" alt="image" src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/blue/40" /> Fictionkins </ins></summary>
   <div align="center"> 
-  <p> in order btw!! also i have alot of fictionkins, these are my main ones tho </p>
-  <p> Karl ( g&b ) </p>
-  <p> Samuel Kyber ( Black Plasma Studio/Squared media aka the one who made loads of minecraft animation movie )</p>
+  <p> in order btw. also i have alot of fictionkins, these are my main ones tho </p>
+  <p> Karl ( g&b ) </p> 
+  <p> Samuel Kyber ( Squared media ) </p>
   <p> Sayori ( DDLC ) </p>
   <p> Bomber ( g&b ) </p>
   <p> Vinestaff ( P! / kin ) </p>
