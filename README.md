@@ -89,7 +89,7 @@ short introduction
   <summary><ins>  <img width="20" height="20" alt="image" src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/brown/250" /> Short information </ins></summary>
   <div align="center"> 
   <p> 01/01 🍰
-  <p> I draw traditionally and digitally, i rarely post them on twitter.. and sometimes draw on people's strawpages if i have the motivation to do so. Multishipper and a rareshipper, I enjoy every ships in g&b, ESPECIALLY the rarepair ones. Excluding the problematic ones, this doesnt includes jean x jacob, i do NOT hc them as a father and son at all. I am a multiyume and very, VERY selective about sharing with Wikilius, since he is my main f/o after all. I only share with my tiktok/twt moots and people that I'd love to share with. While my other f/o's are hypersharing. I also tend to fictkin quite alot, mb... bread and tea enjoyer btw. I like bunnies and dogs. I speak around 3 languages. English, malay/indo, and a bit of russia. I really like Lithuania, France, Finland, Sweden, and Netherlands quite alot, they're my favourites. </p>
+  <p> I draw traditionally and digitally, i rarely post them on twitter.. and sometimes draw on people's strawpages if i have the motivation to do so. Multishipper and a rareshipper, I enjoy every ships in g&b, ESPECIALLY the rarepair ones. Excluding the problematic ones, this doesnt includes jean x jacob, i do NOT hc them as a father and son at all. I am a multiyume and very, VERY selective about sharing with Wikilius, since he is my main f/o after all. I only share with my tiktok/twt moots and people that I'd love to share with. While my other f/o's are hypersharing. I also tend to fictkin quite alot, mb... bread and tea enjoyer btw. I like bunnies and dogs. I speak around 3 languages. English, malay/indo, and a bit of russia. I really like France, Lithuania, Finland, Sweden, and Netherlands quite alot, they're my favourites. </p>
    <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/QNWwC3R_fCsAAAAd/guts-and-blackpowder-danish.gif" />
   </div>
 </details>
@@ -98,7 +98,7 @@ short introduction
   <summary><ins>  <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/862a485700e5f83f5165041efb768189/92a3894316da2601-4f/s75x75_c1/c45c608e72effc6a4fb251e0cc13ae62389d8e06.gifv" /> Before You Interact </ins></summary>
   <div align="center"> 
   <p> I am really akward and make alot of sexual jokes. lmk if you're uncomfortable. I practically laugh at everything. if you text or reply to my messages, i will often not reply nor open the chat. I just generally dont know what to say! please dont ever conjecture that i am ignoring you on purpose :( im very slow whoops.. I'm an English major, i sometimes use ';' and '—' in my sentences, dont ever think im using Ai. But, im not typically in that mode all the time! i like being unserious, i do alot of typos, and I am also cool with almost anything </p>
-  <p> sometimes please use tonetags when talking to me, i am very unsure if youre talking srsly or jokingly. Besides that, i am a very distant person. I cant genarally keep a long term friendship at all because i suck at responding messages, i am also a bit rude sometimes. sorry if i was once rude to you </p>
+  <p> sometimes please use tonetags when talking to me, i am very unsure if youre talking srsly or jokingly. Besides that, i am a very distant person. I cant generally keep a long term friendship at all because i suck at responding messages, i am also a bit rude sometimes. sorry if i was once rude to you </p>
     <p> I strictly dont have a dni list at all, just dont be an asshole to me. besides that, fictionkin doubles are free to interact! and wikilius yumes iwc. Also wikilius yume and being a karl fictionkin at the same time please iwec or dniuid, i feel really uncomfortable because fictkinning karl and yumeshipping wikilius is my coping mechanism, i ship karl/klaus x wikilius because of it. </p>
   <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/6XTcgSyBFPYAAAAd/centaura-corvus.gif" />
   </div>
@@ -156,7 +156,7 @@ short introduction
 
 <img align="center" width="1900" height="1900" alt="image" src="https://files.catbox.moe/mkzbzy.png" />
 
-### ${\textsf{\color{#73393A} " From the sea to the river palestine will be FREE!!!! " }}$
+### ${\textsf{\color{#73393A} " I'll swallow my pride, if you swear not to lie. " }}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315mlshbpx72m2hp67w6niqg3bnm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
