@@ -35,7 +35,7 @@ read BYI plz
 
 <h3 align="center"
 
-### ${\textsf{\color{#73393A} wikilius yume here hello hi }}$
+### ${\textsf{\color{#73393A} wikilius yume/gachikoi here hello hi }}$
 
 <h4 align="center"
 
