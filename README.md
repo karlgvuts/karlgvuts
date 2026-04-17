@@ -67,7 +67,7 @@ short introduction
     <p> nv ;; non verbal ( i wont say anything at all ) </p>
     <p> tc ;; touch comfort </p>
     <p> c+h ;; cuddle and hide </p>
-    <p> ୨୧ ⏔⏔⏔⏔⏔⏔♡⏔⏔⏔⏔⏔⏔ ୨୧ </p>
+    <p> ══════════════════════════════════ </p>
     <p> I often change and add a bit of detail in this readme.md... ( mostly lyrics and stamps LOL ) </p>
     <p> i love LOVE cuddles sm... feel free to cuddle if wanted, even if i am with someone else. I also accept cuddle pile too. Although, I will not say anything, but it makes me very delightful. I usually cuddle with gnb people, if i ever sees c+h in your name, theres a high chance that i might cuddle you or js think about it for awhile. I rarely check people's github to see if they accept c+h or not. C+h will always applies in my name no matter what, i mean not everyone check people's github. I unfortunately do find comfort in just generally cuddling w ppl in this pixel game.. Sorry if im around too much :( </p>
     <p> I dont mind being covered at all, even if its a long period of time. </p>
