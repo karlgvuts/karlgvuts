@@ -109,7 +109,7 @@ short introduction
 <details>
   <summary><ins>  <img src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/brown/321" /> Music </ins></summary>
   <div align="center"> 
-  <p> I basically listen to everything. even some random shit song. I listen to loud songs, Vocaloid, Funk, vent songs, love songs, classical music, and animation meme songs quite alot. I also like alot of artists, i dont really mind if you wanna give a song in my strawpage. I'd appreciate if you introduce me one </p>
+  <p> I basically listen to everything. even some random shit song. I listen to loud songs, Vocaloid, Funk, vent songs, angst, love songs, classical music, and animation meme songs quite alot. I also like alot of artists, i dont really mind if you wanna give a song in my strawpage. I'd appreciate if you introduce me one </p>
 <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/c9TIAd-qhrEAAAAd/guts-and-blackpowder-gnb.gif" />
   </div>
 </details>
