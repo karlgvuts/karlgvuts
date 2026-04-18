@@ -73,7 +73,7 @@ short introduction
     <p> I dont mind being covered at all, even if its a long period of time. </p>
     <p> if you ever think im away, dont hesitate to w2i mate, but you also need to expect late replies cuz i might wont see the notifications </p>
     <p> I sometimes forgot to get out of the whisp interaction, dont mind that </p>
-    <p> i dont care if you copied one of my ponies, as long as you credit me or no credits ok, but dnc or take inspo from my ocs without my permission. especially my blooming gnb oc. if i do caught you doing it, you are getting my first warning. but if you dare to tolerate it, then permanent block it is. i dont joke around with my blooming gnb oc, i spent hours on that shit. </p>
+    <p> i dont care if you copied one of my ponies, as long as you credit me or no credits ok, but dnc or take inspo from my ocs without my permission. especially my blooming gnb oc. if i caught you doing it, you are getting my first warning. but if you dare to tolerate it, then permanent block it is. i dont joke around with my blooming gnb oc, i spent hours on that shit. </p>
     <p> i dont really mind roleplaying, just do note that im not good at roleplay. </p>
     <p> Joke insults are ok, I'm rlly cool with that dw </p>
     <p> you may see me roaming around the map, or js sitting at some areas that i mostly sat, I am usually offtab, but dw i often check every 4-12 minutes </p>
