@@ -72,7 +72,8 @@ short introduction
     <p> i love LOVE cuddles sm... feel free to cuddle if wanted, even if i am with someone else. I also accept cuddle pile too. Although, I will not say anything, but it makes me very delightful. I usually cuddle with gnb people, if i ever sees c+h in your name, theres a high chance that i might cuddle you or js think about it for awhile. I rarely check people's github to see if they accept c+h or not. C+h will always applies in my name no matter what, i mean not everyone check people's github. I unfortunately do find comfort in just generally cuddling w ppl in this pixel game.. Sorry if im around too much :( </p>
     <p> I dont mind being covered at all, even if its a long period of time. </p>
     <p> if you ever think im away, dont hesitate to w2i mate, but you also need to expect late replies cuz i might wont see the notifications </p>
-    <p> I sometimes forgot to get out of the whisp interaction, dont mind that </p>
+    <p> I sometimes forgot to get out of the whisp interaction, dont mind that </p> 
+    <p> for oomfs, i sometimes or often may not come up and sit with you. Simply because i tend to be very distant and alone all the time. but i dont mind if you wanna sit/cuddle with me. </p>
     <p> i dont care if you copied one of my ponies, as long as you credit me or no credits ok, but dnc or take inspo from my ocs without my permission. especially my blooming gnb oc. if i caught you doing it, you are getting my first warning. but if you dare to tolerate it, then permanent block it is. i dont joke around with my blooming gnb oc, i spent hours on that shit. </p>
     <p> i dont really mind roleplaying, just do note that im not good at roleplay. </p>
     <p> Joke insults are ok, I'm rlly cool with that dw </p>
