@@ -92,7 +92,7 @@ short introduction
   <summary><ins>  <img src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/brown/250" /> Short information </ins></summary>
   <div align="center"> 
   <p> 01/01 🍰
-  <p> I draw traditionally and digitally, i rarely post them on twitter.. and sometimes draw on people's strawpages if i have the motivation to do so. Multishipper and a rareshipper, I enjoy every ships in g&b, ESPECIALLY the rarepair ones. Excluding the problematic ones, this doesnt includes jean x jacob, i do NOT hc them as a father and son at all. I am a multiyume and very, VERY selective about sharing with Wikilius, since he is my main f/o after all. I only share with my tiktok/twt moots and people that I'd love to share with. While my other f/o's are hypersharing. I also tend to fictkin quite alot, mb... bread and tea enjoyer btw. I like bunnies and dogs. I speak around 3 languages. English, malay/indo, and a bit of russia. I really like France, Lithuania, Finland, Sweden, and Netherlands quite alot, they're my favourites. </p>
+  <p> I draw traditionally and digitally, i rarely post them on twitter.. and sometimes draw on people's strawpages if i have the motivation to do so. Multishipper and a rareshipper, I enjoy every ships in g&b, ESPECIALLY the rarepair ones. Excluding the problematic ones, this doesnt includes jean x jacob, i do NOT hc them as a father and son at all. I am a multiyume and very, VERY selective about sharing with Wikilius, since he is my main f/o after all. I only share with my tiktok/twt moots and people that I'd love to share with. While my other f/o's are hypersharing. I also tend to fictkin quite alot, mb... bread and tea enjoyer btw. I like bunnies and dogs. I speak around 3 languages. English, malay/indo, and a bit of russia. I'm not quite good at russia so whatever bruuhhh. I really like France, Lithuania, Finland, Sweden, and Netherlands quite alot, they're my favourites. </p>
    <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/QNWwC3R_fCsAAAAd/guts-and-blackpowder-danish.gif" />
   </div>
 </details>
@@ -129,26 +129,6 @@ short introduction
   </div>
 </details>
 
-<details>
-  <summary><ins>  <img src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/blue/40" /> Fictionkins </ins></summary>
-  <div align="center"> 
-  <p> in order btw. also i have alot of fictionkins, these are my main ones tho </p>
-  <p> Karl ( g&b ) </p> 
-  <p> Samuel Kyber ( Squared media ) </p>
-  <p> Sayori ( DDLC ) </p>
-  <p> Bomber ( g&b ) </p>
-  <p> Vinestaff ( P! / kin ) </p>
-  <p> Active Volcanic Mines ( FE2, it can be the map or the skin one ) </p>
-  <p> American Ferryman ( g&b ) </p>
-  <p> Green ( Rodamrix Among us ) </p>
-  <p> Blue ( Rodamrix Among us )</p>
-  <p> Purple ( AVM/Alan becker ) </p>
-  <p> Sadny Bin ( Pretty Blood ) </p>
-  <p> Buoyant Bee ( BSS ) </p>
-  <p> Snowy Stronghold ( FE2, it can be the map or the skin one ) </p>
-    <img width="300" height="300" alt="image" src="https://media.tenor.com/eRmsgA4zA_wAAAAM/barry-gb-guts-and-blackpowder.gif" />
-  </div>
-</details>
 
 <details>
   <summary><ins> <img src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/yellow/170" /> Stamps wall </ins></summary>
