@@ -75,6 +75,7 @@ short introduction
     <p> i dont care if you copied one of my ponies, as long as you credit me or no credits ok, but dnc or take inspo from my ocs without my permission. especially my blooming gnb oc. if i caught you doing it, you are getting my first warning. but if you dare to tolerate it, then permanent block it is. i dont joke around with my blooming gnb oc, i spent hours on that shit. </p>
     <p> i dont really mind roleplaying, just do note that im not good at roleplay. </p>
     <p> Joke insults are ok, I'm rlly cool with that dw </p>
+    <p> i dont mind ships towards my skins at all, feel free with sit with me! </p> 
     <p> you may see me roaming around the map, or js sitting at some areas that i mostly sat, I am usually offtab, but dw i often check every 4-12 minutes </p>
     <p> I love placing some random items, and yes if you see a table full of random items at outside bakery, that was me. I usually do it whenever im bored and i hope this didnt offend you.. </p>
     <p> i unfriend people who are offline over 250+ days </p>
