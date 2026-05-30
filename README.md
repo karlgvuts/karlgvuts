@@ -123,7 +123,7 @@ short introduction
   <summary><ins>  <img src="https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv" /> Interests </ins></summary>
   <div align="center"> 
   <p> In order of favourite + main interests  </p>
-  <p> Guts & Blackpowder / Lexington & Concord / Centaura / Flee the facility / Adopt me / Countryhumans / Flood Escape 2 / Minecraft / Dead Ahead / Napoleonic wars / Blood Debt / Blood & Iron / Islands ( Roblox ) / Hetalia </p> 
+  <p> Guts & Blackpowder / Lexington & Concord / Centaura / Flee the facility / Adopt me / Countryhumans / Flood Escape 2 / Minecraft / Dead Ahead / Napoleonic wars / Blood & Iron / Islands ( Roblox ) / Hetalia </p> 
     <img width="300" height="300" alt="image" src="https://media.tenor.com/BW1oKIjC9qQAAAAM/barry-roblox.gif" />
   </div>
 </details>
