@@ -10,10 +10,14 @@
 
 rmk'ing github, if not i will put the same layout back
 
+—————————————
+
+\that one guy who made the gnb area, hellooo ≽^•⩊•^≼
+
 ══════════════════════════════════
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315mlshbpx72m2hp67w6niqg3bnm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-NEVER ask a gnb player what happened on 6.27.2026. NEVER!!!!!!!!!!!!!!!
+AYO BOI—😳Why are you so GAY?!—😳😂😂
 
-\that one guy who made the gnb area, hellooo ≽^•⩊•^≼
+ <img width src="https://files.catbox.moe/rrnfgk.png" />
